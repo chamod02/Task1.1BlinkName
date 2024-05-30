@@ -1,1 +1,1 @@
-Hi how are you, sawadika hava a great day 
+Hi how are you, swastika have a great day 
